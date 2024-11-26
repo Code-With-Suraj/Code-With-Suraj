@@ -34,5 +34,5 @@ I believe in **learning by doing**, and every day is an opportunity to grow.
 
 ### Let's Connect  
 Feel free to check out my projects or reach out to collaborate!  
-📫 **Email**: _your-email@example.com_  
-🌐 **Portfolio**: [Your Portfolio Link Here]
+📫 **Email**: _surajsingh.noida98@gmail.com_  
+🌐 **Portfolio**: [I am Working on it]
